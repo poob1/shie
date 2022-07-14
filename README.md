@@ -30,4 +30,13 @@ yoshi
 reishi  
 kadushi  
 karoshi  
+iishie
+puhshie
+oopshie
+rooshie (based on rushii)
+hooshie
+shushie
+sweetshie
+fakeshie
+realshie 
 mitsubishi (forgive me)  
