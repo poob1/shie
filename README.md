@@ -12,9 +12,9 @@ cuteshie
 shushie  
 sushie  
 sushi  
-ktshie
-youshie
-rushie
-blushie
-meowshie
-slushie
+ktshie  
+youshie  
+rushie  
+blushie  
+meowshie  
+slushie  
