@@ -18,3 +18,16 @@ rushie
 blushie  
 meowshie  
 slushie  
+boemboeshi  
+bambishi  
+bushie  
+dashi  
+hashi  
+nashi  
+roshi  
+washi  
+yoshi  
+reishi  
+kadushi  
+karoshi  
+mitsubishi (forgive me)  
